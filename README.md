@@ -1,1 +1,0 @@
-# Repaso_pc2_open
